@@ -1,6 +1,6 @@
 ### Hi there 👋, Ako si buddy
 #### also known as Matthew Tulalian, Choi choi, pogi, etc.,
-#BUDDYNATION #BUDDYBOSSMAN #MARUNONGHUMIPAN
+#BUDDYNATION #BUDDYBOSSMAN 
 
 Skills: Java/CSS/HTML/Kumain/PHP
 

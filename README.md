@@ -1,5 +1,5 @@
 ### Hi there 👋, Ako si buddy
-#### also known as Matthew Tulalian, Choi choi, pogi, etc.,
+#### also known as Matthew Tulalian, Choi choi, etc.,
 #BUDDYNATION #BUDDYBOSSMAN 
 
 Skills: Java/CSS/HTML/Kumain/PHP
